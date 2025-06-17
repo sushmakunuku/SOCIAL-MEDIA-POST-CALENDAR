@@ -1,0 +1,18 @@
+# SEARCH ENGINE OPTIMIZATION STRATEGY
+
+**COMPANY** : CODTECH IT SOLUTIONS 
+
+**NAME** : KUNUKU SUSHMA 
+
+**INTERN ID** : CT04DG1666
+
+**DOMAIN** : DIGITAL MARKETING 
+
+**DURATION** : 4 WEEKS
+
+**MENTOR** : NEELA SANTOSH 
+
+![IMG-20250617-WA0008](https://github.com/user-attachments/assets/8a784d51-fa3f-4d3d-83ce-5206984a8fa6)
+![IMG-20250617-WA0007](https://github.com/user-attachments/assets/3843c9a5-b6b1-4665-a45b-08aa72681bed)
+
+
